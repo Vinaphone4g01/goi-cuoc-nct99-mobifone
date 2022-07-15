@@ -1,2 +1,4 @@
 # goi-cuoc-nct99-mobifone
 Đăng ký gói NCT99 Mobi ưu đãi 90GB chỉ 99.000đ
+<p style="text-align: justify;">Bên cạnh NCT50, <a href="https://3gmobifones.com/goi-cuoc-nct99-mobifone"><strong>gói cước NCT99 của MobiFone</strong></a> cũng có ưu đãi hấp dẫn không kém cạnh. Chỉ 99.000đ/tháng thuê bao nhận ngay 3GB/ngày lướt web thả ga, hết dung lượng hệ thống hạ băng thông tiếp tục truy cập tốc độ thường. Hơn nữa gói cước khuyến mãi này còn ưu đãi free nghe nhạc trên ứng dụng NhacCuaTui.</p>
+<p style="text-align: justify;">Mọi khách hàng có thể nhắn tin theo cú pháp <span style="color: #ff0000;"><strong>ON NCT99</strong></span> gửi <span style="color: #ff0000;"><strong>9084</strong></span> để biết được thuê bao của mình có cơ hội tham gia không nhé! Bởi đây là gói cước dành cho những thuê bao thuộc danh sách của nhà mạng mà thôi. Cùng theo dõi để biết ngay nhé!</p>
